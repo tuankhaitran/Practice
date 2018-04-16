@@ -1,4 +1,2 @@
 Byebye everyone
 
-svasfbafsbgasfgasfgafsgs
-dsfasdgsfvsfvafv
